@@ -4,3 +4,4 @@
 - 💞️ I’m looking to collaborate on website make project
 - 📫 To reach me adsutharthor10@gmail.com
 <hr>
+standard.gif
