@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **web projects**
 
-- 📫 How to reach me **adsutharthor10@gmail.com**
+- 📫 How to reach me **developerad10@gmail.com**
 
 - ⚡ Fun fact **I don't have gf**
 
