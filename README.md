@@ -11,8 +11,6 @@
 
 - 📫 How to reach me **developerad10@gmail.com**
 
-- ⚡ Fun fact **I don't have gf**
-
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
